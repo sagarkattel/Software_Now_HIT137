@@ -4,7 +4,7 @@ Group Members
 
 Sagar Kattel - S396108
 
-Kishor Aryal - S
+Kishor Aryal - S394008
 
 Sujan Kunwar - S
 
